@@ -1,2 +1,2 @@
-# Fundaci-n-revida-
-Somos una fundación para ayudar a los más necesitados con amor y empatía 
+# Fundacion-revida-
+somos una fundación sin ánimo de lucro  que sirve para ayudar a los más necesitados con amor y empatia
